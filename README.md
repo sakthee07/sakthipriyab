@@ -18,4 +18,4 @@
 - Transition into Automation QA
 
 ## Connect With Me
-LinkedIn: [Your LinkedIn URL](https://www.linkedin.com/in/sakthi-priya-19160720b/)
+LinkedIn: [LinkedInProfile](https://www.linkedin.com/in/sakthi-priya-19160720b/)
